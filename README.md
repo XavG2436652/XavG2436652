@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on video games mods
 - 📫 How to reach me : PotionGang's discord server
 - 😄 Pronouns: He
-- ⚡ Fun fact: I'm a gamer who LOVES play sandbox games
+- ⚡ Fun fact: I'm a gamer who LOVES playing sandbox games
 
 <!---
 XavG2436652/XavG2436652 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
